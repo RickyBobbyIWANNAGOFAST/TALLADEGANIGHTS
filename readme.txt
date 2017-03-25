@@ -1,0 +1,1 @@
+Nate Yost is a bully. He works for photorithm. He is Gunthers favorite student; but he never sees him. He makes baby laser turrets to blind them. Put a sleeping mask over the babys eyes or he will blind them. 
